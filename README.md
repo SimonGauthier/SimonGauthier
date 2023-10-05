@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SimonGauthier
-- 👀 I’m interested in graphiqc design
+- 👀 I’m interested in graphic design
 - 🌱 I’m currently learning how to use Ai for poster production
 - 💞️ I’m looking to collaborate on a poster project about bees
 - 📫 How to reach me is private
